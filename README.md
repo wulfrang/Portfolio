@@ -1,0 +1,1 @@
+Through Codealpha i have successfully completed the First Task(Task 1).The task is to create a portfolio website showcasing my web designing skills.This portfolio website serves as an online resume in a very appealing and organized manner.
